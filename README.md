@@ -1,0 +1,1 @@
+# Guia_instala-o_capacita-o_konvexJr_ban
